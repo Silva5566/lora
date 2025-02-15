@@ -6,7 +6,7 @@
 
 <p align="center">
 <a href="https://github.com/sulaksha449/Asitha_MD_Sula">
-    <img src=https://i.ibb.co/0GhKf6N/20241120-113020.jpghttps://im.ge/i/E873F1E5-34FC-47FA-A043-22A22C5842FE.HPSzEy"  width="700px">
+    <img src=https://i.im.ge/2025/02/15/HPSvSz.95F9D1A9-506E-4E30-B140-6FB97574E266.jpeg"  width="700px">
 </a>
 <hr>
  <p align="center">

@@ -1,7 +1,7 @@
 <div align="center">
 
 
- [![Typing SVG](𝐍𝐚𝐯𝐞𝐞𝐧 𝐌𝐃 𝐰𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐛𝐨𝐭 𝟐𝟎𝟐𝟓 🔥)
+(𝐍𝐚𝐯𝐞𝐞𝐧 𝐌𝐃 𝐰𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐛𝐨𝐭 𝟐𝟎𝟐𝟓 🔥)
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
 <p align="center">
